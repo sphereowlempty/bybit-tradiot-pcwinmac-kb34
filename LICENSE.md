@@ -1,4 +1,4 @@
-# 
+# Ultime bybit trading bot scripts for Mac OS | Premium bybit trading bot scripts for PC Windows. Featuring API d'échange centralisé and pools de liquidité DEX — optimized for maximum performance.
 
 
 
